@@ -1,5 +1,5 @@
 brrrr!
-![image](https://github.com/user-attachments/assets/19e661cb-180c-45c2-bd13-e925e14c9fbc)
+
 
 <!--
 **sweetandkindgirl/sweetandkindgirl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
