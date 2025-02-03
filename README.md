@@ -2,7 +2,7 @@ hi i like showing images to the internet
 
 ![download (11)](https://github.com/user-attachments/assets/043506b9-ff41-445c-b346-31ee8b856230)
 ![image](https://github.com/user-attachments/assets/23d86334-7943-4af0-b889-a5d5da995c7f)
-![image](https://github.com/user-attachments/assets/566b478a-4958-4277-a7d7-e1c8c2746d55)
+
 
 ![image](https://github.com/user-attachments/assets/b6659270-5333-47eb-a10c-9dc59944c12c)
 
