@@ -1,4 +1,5 @@
- copy and paste image gerrrr hi 
+![image](https://github.com/user-attachments/assets/8256df3e-3d28-425b-853f-8c3e2579b434)
+
 
 
 ![download (11)](https://github.com/user-attachments/assets/043506b9-ff41-445c-b346-31ee8b856230)
