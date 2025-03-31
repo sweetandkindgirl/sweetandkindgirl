@@ -1,12 +1,9 @@
 ![image](https://github.com/user-attachments/assets/8256df3e-3d28-425b-853f-8c3e2579b434)
 ![image](https://github.com/user-attachments/assets/e8c765ea-7a08-4608-bd6c-b03ad601b9b6)
+![image](https://github.com/user-attachments/assets/4e55e5bd-03c3-476f-a966-8cf1c890eabf)
+![image](https://github.com/user-attachments/assets/293fd895-d745-43f1-92d1-f591a22b29b7)
+![image](https://github.com/user-attachments/assets/8c6d91d1-12e0-46c3-bdbc-01ec23eae79a)
 
-![download (11)](https://github.com/user-attachments/assets/043506b9-ff41-445c-b346-31ee8b856230)
-![image](https://github.com/user-attachments/assets/8545f357-5484-45f9-a9dc-64ee47a4f5c1)
-
-FILM GEEK ALER T FILM GEEK ALERT
-
-![image](https://github.com/user-attachments/assets/b6659270-5333-47eb-a10c-9dc59944c12c)
 
 
 
